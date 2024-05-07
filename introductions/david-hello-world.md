@@ -6,7 +6,7 @@
 David
 
 **What is one of your proudest accomplishments or favorite memories?** 
-Become an Avalanche ambassador
+A few weeks ago I was accepted into the Avalanche ambassador program
 
 ## About You and The Course
 
